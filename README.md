@@ -10,13 +10,15 @@ Working what can only be described as “part time” for another project. Also 
 My Works
 
 Videos with stuff i made as well (Most of my actually polished stuff that I worked on) : 
-https://youtu.be/ZxJh-VLNsZQ \n
+
+https://youtu.be/ZxJh-VLNsZQ 
 https://youtu.be/qHVN5y16-0Q	
 https://youtu.be/_UvKmXKgOSs
 https://youtu.be/LwK7ymIAU3A?si=RzSyfJbxWjj_UyrV
 https://youtu.be/rYAmQ48F4ac?si=TAL8wJN5sKA2EGOH
 https://www.youtube.com/watch?v=qHVN5y16-0Q
 https://youtu.be/BoCgpr4sf9o
+
 
 Dev Account : https://www.roblox.com/users/6033964666/profile#!/creations
 
