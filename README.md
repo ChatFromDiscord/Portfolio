@@ -1,6 +1,6 @@
 # Chat’s Portfolio
 **Introduction** <br>
-I’ve been coding on roblox for around 1-2 years now, and I’d say I'm at least somewhat experienced by now. I don't have any specific specializations, and can do mostly anything. My timezone is GMT(+8). I mostly speak English, although I can speak a small bit of mongolian if needed. I also know Python, C++, and am currently learning Godot.
+I’ve been coding on roblox for around 1-2 years now, and I’d say I'm at least somewhat experienced by now. I don't have any specific specializations, and can do mostly anything. My timezone is GMT(+8). I also know Python, C++, and am currently learning Godot.
 
 **Current Status** <br>
 <s>Getting my ass beat by a cold</s> <br>
