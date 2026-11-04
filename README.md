@@ -10,7 +10,7 @@ Working what can only be described as “part time” for another project. Also 
 My Works
 
 Videos with stuff i made as well (Most of my actually polished stuff that I worked on) : 
-https://youtu.be/ZxJh-VLNsZQ
+https://youtu.be/ZxJh-VLNsZQ \n
 https://youtu.be/qHVN5y16-0Q	
 https://youtu.be/_UvKmXKgOSs
 https://youtu.be/LwK7ymIAU3A?si=RzSyfJbxWjj_UyrV
